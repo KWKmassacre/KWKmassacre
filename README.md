@@ -1,4 +1,4 @@
-## Haiii I'm nat :3
+## haiii I'm nat :3
 
 - i'm a mentally ill transfemme
 - i'm literally a robot girl
